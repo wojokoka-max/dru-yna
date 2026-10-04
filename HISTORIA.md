@@ -18,6 +18,29 @@ W wywiadzie z 1993 r. Alina Bergman mówiła o kierownikach: początkowo był ni
 
 Artykuł z lata 1993 r. relacjonował wyjazd na obóz do Władysławowa, gdzie zespół dał trzy przedstawienia dla letników i mieszkańców. Inny materiał z tego roku wymieniał sukces: „Brązową Jodłę” na kieleckim festiwalu wśród ponad 60 zespołów oraz I miejsce za występy artystyczne podczas festynu w Jeleśni. Informował również o naborze prowadzonym od 13 sierpnia do 4 września w Śląskim Teatrze Tańca przy ul. Żeromskiego.
 
+## Występy wielkiej skali i intensywność koncertowania
+
+Liczba koncertów i udział w dużych imprezach wymagają odróżnienia źródeł podających sumy od tych, które dokumentują konkretne występy. Dostępna prasa potwierdza bardzo intensywną działalność: w 1989 r. zespół mówił o około 650 koncertach w pierwszych dziesięciu latach istnienia (średnio ok. 65 rocznie). To zgodne ze wspomnieniem użytkowniczki, że rocznie dawali kilkadziesiąt koncertów, czasem więcej.
+
+Najbardziej spektakularne potwierdzone wydarzenie to **Akcja/Zlot Grunwaldzki w 1988 r.** W jubileuszowym wywiadzie z 1989 r. członkowie wspominali, że podczas jednego wieczoru zaśpiewali „Bogurodzicę” 124 razy dla prawie 20-tysięcznej publiczności; „Drużyna” występowała tam razem z katowickimi „Słonecznymi”, reprezentując artystyczne ambicje harcerstwa. Oficjalna historia Hufca ZHP Bytom potwierdza, że w 1988 r. „Drużyna” reprezentowała Chorągiew Śląską na Zlocie Grunwaldzkim. Niezależne zestawienia historyczne opisują zlot z okazji 70-lecia ZHP jako wydarzenie liczące ponad 20 tys. harcerzy (cały zlot trwał w lipcu); warto odróżnić liczbę uczestników zlotu od prawie 20 tys. publiczności wspomnianej przy tym konkretnym wieczornym występie.
+
+W 1984 r. „Wakacyjne podróże «Drużyny»” opisywały dwutygodniowy pobyt w górach Harzu w NRD, udział w centralnych obchodach 40-lecia PRL w Halle i **cztery koncerty** w różnych miejscowościach. Po powrocie zespół występował m.in. z okazji Dni Bytomia oraz Dni Rudy Śląskiej i Dnia Dziecka w Bielszowicach i Łagiewnikach. Jesienią przyjął zaproszenie na **cztery występy w katowickim Spodku** podczas trwającego tam Festiwalu Filmów Rysunkowych. Są to mocne przykłady wyjazdów i imprez o dużej skali, choć artykuł nie podaje liczebności widowni Spodka ani tych czterech koncertów.
+
+Inny udokumentowany występ odbył się podczas wielkiego **Święta Prasy w Wojewódzkim Parku Kultury i Wypoczynku** (dzisiejszy Park Śląski) w 1984 r. Program imprezy rozpisany na kilka estrad i wiele równoległych atrakcji umieszcza występ „Drużyny” o 13:45 na estradzie „Parkowa”. To pokazuje udział w wielkim, regionalnym wydarzeniu plenerowym, lecz nie pozwala przypisać zespołowi frekwencji całej imprezy.
+
+Na szczeblu ogólnopolskim zespół rywalizował i zdobywał nagrody: w 1988 r. główną nagrodę Ministra Kultury i Sztuki na Międzynarodowym Festiwalu Tańca „Poznańskie Koziołki ’88”; w 1993 r. „Brązową Jodłę” i nagrodę specjalną Naczelnika ZHP podczas XX Festiwalu Kultury Młodzieży Szkolnej w Kielcach. Relacja z 1993 r. podaje, że startowało tam ponad 60 zespołów. Alina Bergman wspominała także występ w koncercie galowym emitowanym w TV, TV Polonia oraz program zespołu nadany przez Interwizję.
+
+Prasowe ślady tras pokazują skalę działalności poza Bytomiem: w 1984 r. koncerty w Halle i miejscowościach Harzu oraz występy w Katowicach, Mysłowicach, Bielszowicach, Łagiewnikach i na wydarzeniach Dni Bytomia/Rudy Śląskiej; w 1993 r. trzy przedstawienia dla letników i mieszkańców Władysławowa. Brak dostępnych źródeł z danymi frekwencyjnymi dla większości tych koncertów — nie należy dopowiadać ich widowni.
+
+### Źródła do dużych wydarzeń
+
+- **„Przetańczyć… 10 lat”**, „Życie Bytomskie”, 1989, nr 48 — 124 wykonania „Bogurodzicy” podczas jednego wieczoru Akcji Grunwaldzkiej dla prawie 20 tys. publiczności; główna nagroda na „Poznańskich Koziołkach ’88”, występy w Czechosłowacji i NRD. [Skan numeru 48/1989 w SBC](https://sbc.org.pl/Content/289926/PDF/iv219997-1989-48.pdf).
+- **„Wakacyjne podróże «Drużyny»”**, „Życie Bytomskie”, 1984, nr 42 — dwa tygodnie w Harzu, centralne obchody w Halle, cztery koncerty oraz cztery zaproszone występy w Spodku podczas Festiwalu Filmów Rysunkowych. [Skan numeru 42/1984 w SBC](https://sbc.org.pl/Content/290895/PDF/iv219997-1984-42-0001.pdf).
+- **Święto Prasy w WPKiW**, program w prasie regionalnej — „Drużyna” w programie estrady „Parkowa” o 13:45. [Skan programu w SBC](https://sbc.org.pl/Content/62586/PDF/62586.pdf).
+- **Festiwal Kultury Młodzieży Szkolnej w Kielcach, 1993** — „Brązowa Jodła”, 60+ zespołów i transmisja koncertu galowego. [„Życie Bytomskie”, nr 33/1993](https://sbc.org.pl/Content/290672/PDF/iv219997-1993-33.pdf); [wywiad z Aliną Bergman, nr 50/1993](https://sbc.org.pl/Content/290689/PDF/iv219997-1993-50.pdf).
+- **Zlot ZHP 1988** — udział HZA „Drużyna” w reprezentacji Chorągwi Śląskiej potwierdza [Hufiec ZHP Bytom](https://bytom.zhp.pl/historia/). Informacje o skali całego zlotu (ponad 20 tys. uczestników) podaje [historia Zlotu ZHP 1988](https://xn--meb.pisz.pl/Zlot_ZHP_1988); liczby te nie są liczbą widzów jednego koncertu.
+- **Występ w Spodku podczas wydarzenia filmowego** — nazwa wydarzenia w źródle brzmi „Festiwal Filmów Rysunkowych”; czekają na ustalenie dokładna edycja i dzienne frekwencje. Nie utożsamiam jej bez dalszych dowodów z konkretnym festiwalem/edycją znanym pod podobną nazwą.
+
 ## Jubileusze i lata 2000.
 
 W 1995 r. z okazji 15-lecia zapowiedziano koncert „Stare, nowe, najnowsze” w Śląskim Teatrze Tańca. Artykuł z 1999 r. dokumentuje jubileusz 20-lecia Harcerskiego Zespołu Reprezentacyjnego „Drużyna”, koncert w Bytomskim Centrum Kultury oraz prowadzenie zespołu przez Barbarę i Czesława Wnęków.
