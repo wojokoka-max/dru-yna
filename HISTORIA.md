@@ -6,6 +6,8 @@ Harcerski Zespół Artystyczny „Drużyna” powstał w Bytomiu w 1979 r. z ini
 
 W „Życiu Bytomskim” z 1982 r. opisano, że w październiku 1979 r. odbyły się przesłuchania — egzamin taneczny i słuchowy — w wyniku których skompletowano grupę blisko 120 osób. Pierwsza próba miała miejsce 7 listopada 1979 r. Zespół miał otwarty nabór, a pozostanie w nim zależało od uzdolnień i obowiązków szkolnych.
 
+Ważną postacią harcerskiego zaplecza zespołu był **hm. Jan Piechaczek**, wieloletni komendant Hufca ZHP Bytom (09.10.1982–06.11.1997). Źródła dotyczące jego służby i materiał prasowy z 1984 r. pokazują, że w tym okresie wspierał środowisko, w którym działała „Drużyna”. W archiwum zespołu warto opisać go jako ważnego protektora i sojusznika organizacyjnego, bez przypisywania mu konkretnych decyzji artystycznych, dopóki nie znajdziemy dodatkowych dokumentów.
+
 Pierwszy program, **„Razem z nami”**, obejmował 14 piosenek napisanych dla zespołu. Dzielił się na część o Bytomiu i regionie oraz część harcersko-obozową. W tym samym artykule podano, że kierownictwo muzyczne od początku sprawował Tadeusz Serafin, kierownictwo literackie powierzono Tadeuszowi Kijonce, a za choreografię odpowiadała **Marta Bochenek**, tancerka warszawskiej Opery. To nazwisko potwierdza również wywiad z 1993 r. z Aliną Bergman. W jednym z odczytów OCR tekstu z 1982 r. imię rozpoznano błędnie jako „Maria”; prawidłowe imię to **Marta**.
 
 ## Działalność w latach 80.
@@ -73,6 +75,7 @@ Poniżej podano rozpoznane materiały cyfrowe. Linki prowadzą do skanów całyc
 
 - **1980, „Jeśli chcesz być członkiem HZA «Drużyna»”** — ogłoszenie o naborze; dzieci i młodzież 8–14 lat, uzdolnienia wokalne lub baletowe, zapisy w MDK przy ul. Żeromskiego. [SBC, numer 37/1980](https://sbc.org.pl/Content/288527/PDF/iv219997-1980-37-0001.pdf).
 - **1982, „Drużyna”** — początki, liczebność, pierwsza próba, twórcy i program „Razem z nami”. [SBC, numer 4/1982](https://sbc.org.pl/Content/289141/PDF/iv219997-1982-04-0001.pdf), strona gazety 4 (skan PDF: strona 5).
+- **Jan Piechaczek i Hufiec ZHP Bytom** — oficjalna biografia podaje funkcję komendanta od 09.10.1982 do 06.11.1997; materiał z 1984 r. wymienia komendanta hm. Jana Piechaczka w kontekście działalności HZA „Drużyna”. [Komisja Historyczna Chorągwi Śląskiej ZHP — Jan Piechaczek](https://historyczna.slaska.zhp.pl/wp-content/uploads/2020/01/KH_Bytom.pdf); [„Życie Bytomskie”, nr 12/1984](https://sbc.org.pl/Content/290865/PDF/iv219997-1984-12-0001.pdf).
 - **1984, „Co słychać w «Drużynie»?”** — wywiad o profilu, szczepie, repertuarze, naborze i planach na pięciolecie. [SBC, numer 12 z 19 marca 1984 r.](https://sbc.org.pl/Content/290865/PDF/iv219997-1984-12-0001.pdf).
 - **1985, program 1-majowy** — zapowiedź występu HZA „Drużyna” w Radzionkowie. [SBC, numer 17/1985](https://sbc.org.pl/Content/290923/PDF/iv219997-1985-17-0001.pdf?handler=pdf).
 - **1989, relacja z dziesięciolecia** — koncerty, programy, wyjazdy, nagrody i działalność społeczna. [SBC, numer 19/1989](https://sbc.org.pl/Content/289897/PDF/iv219997-1989-19.pdf).
