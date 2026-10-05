@@ -49,6 +49,12 @@ Prasowe ślady tras pokazują skalę działalności poza Bytomiem: w 1984 r. kon
 - **Łagów:** w numerach i wynikach OCR przeszukanych na tym etapie fraza pojawia się przy wydarzeniach innych organizacji albo jako nazwa miejsca niezwiązana z bytomskim HZA. W 1989 r. tekst jubileuszowy przywołuje „zawalenie się sceny podczas koncertu w Łagowie” jako przygodę zespołu, ale sama wzmianka nie daje daty ani wskazania, który Łagów; pozostawiam ją jako nierozstrzygnięty trop. [SBC, numer 48/1989](https://sbc.org.pl/Content/289926/PDF/iv219997-1989-48.pdf).
 - **Grunwald:** szczegóły występu dla prawie 20 tys. osób, 124-krotnego śpiewania „Bogurodzicy” i reprezentowania harcerstwa przez „Drużynę” razem ze „Słonecznymi” znajdują się w tym samym wspomnieniu jubileuszowym z 1989 r.; udział w zlocie 1988 r. potwierdza też [historia Hufca ZHP Bytom](https://bytom.zhp.pl/historia/).
 
+### Dodatkowe nazwiska do weryfikacji
+
+- **Marta Morys** — nazwisko przekazane w ramach kwerendy użytkownika jako instruktorka związana z zespołem. Brak dat i zakresu obowiązków w dotychczas zgromadzonych źródłach; wymaga potwierdzenia w prasie, dokumentach MDK/BeCeK lub materiałach osobistych.
+- **Danuta Bury** — nazwisko przekazane w ramach kwerendy użytkownika jako kierowniczka zespołu w jego końcowych latach. Nie ustalono jeszcze dokładnego okresu ani źródła publikowanego; wpis pozostaje hipotezą roboczą do potwierdzenia.
+
+
 ## Jubileusze i lata 2000.
 
 W 1995 r. z okazji 15-lecia zapowiedziano koncert „Stare, nowe, najnowsze” w Śląskim Teatrze Tańca. Artykuł z 1999 r. dokumentuje jubileusz 20-lecia Harcerskiego Zespołu Reprezentacyjnego „Drużyna”, koncert w Bytomskim Centrum Kultury oraz prowadzenie zespołu przez Barbarę i Czesława Wnęków.
