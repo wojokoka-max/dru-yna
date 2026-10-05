@@ -51,7 +51,7 @@ Prasowe ślady tras pokazują skalę działalności poza Bytomiem: w 1984 r. kon
 
 ### Dodatkowe nazwiska do weryfikacji
 
-- **Marta Morys** — nazwisko przekazane w ramach kwerendy użytkownika jako instruktorka związana z zespołem. Brak dat i zakresu obowiązków w dotychczas zgromadzonych źródłach; wymaga potwierdzenia w prasie, dokumentach MDK/BeCeK lub materiałach osobistych.
+- **Marta Morys** — nazwisko przekazane w ramach kwerendy użytkownika jako choreografka związana z zespołem. Brak dat i zakresu obowiązków w dotychczas zgromadzonych źródłach; wymaga potwierdzenia w prasie, dokumentach MDK/BeCeK lub materiałach osobistych.
 - **Danuta Bury** — nazwisko przekazane w ramach kwerendy użytkownika jako kierowniczka zespołu w jego końcowych latach. Nie ustalono jeszcze dokładnego okresu ani źródła publikowanego; wpis pozostaje hipotezą roboczą do potwierdzenia.
 
 
